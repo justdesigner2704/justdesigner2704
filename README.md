@@ -8,3 +8,6 @@
 justdesigner2704/justdesigner2704 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+University of Michigan--Ann Arbor Law School 
+International Law
