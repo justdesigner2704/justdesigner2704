@@ -2,7 +2,7 @@
 - 👀 I’m interested in trading and web developing
 - 🌱 I’m currently learning Frontend development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me by telegram: @Shohruh2704  by instagram: @shohruh_2704  by onlyfans: @shohruxxon  by snapchat: @shokhprod  by twitter @shohruh2704
 
 <!---
 justdesigner2704/justdesigner2704 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
